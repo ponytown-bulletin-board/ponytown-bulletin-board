@@ -17,5 +17,8 @@ report anyone problematic annonymously on the atabook
 
 [![Untitled5-20260929215428.png](https://i.postimg.cc/s2q38rFm/Untitled5-20260929215428.png)](https://postimg.cc/sBPFQbgG)
 
+<div align="center">
 
 [@Z33r00LagsAlot](https://github.com/Z33r00LagsAlot) says: fih
+
+</div>
