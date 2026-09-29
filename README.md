@@ -10,6 +10,8 @@ your message will be deleted once it has been added to the board
 mean/disrespectful messages will not be added 
 
 report anyone problematic annonymously on the atabook
+
+[![Alt Text](https://img.shields.io/badge/atabook-black?style=for-the-badge)](https://ponytownbulliten.atabook.org/)
 </div>
 
 
