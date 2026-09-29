@@ -1,4 +1,4 @@
-[![Untitled115-20260929211045.png](https://i.postimg.cc/nc830wXf/Untitled115-20260929211045.png)](https://postimg.cc/fkK7bC78)
+[![Untitled115-20260929211045-(1).png](https://i.postimg.cc/GmsRyfTT/Untitled115-20260929211045-(1).png)](https://postimg.cc/RW92rXRv)
 
 <div align="center">
 𝙄⃨𝙉⃨𝙎⃨𝙏⃨𝙍⃨𝙐⃨𝘾⃨𝙏⃨𝙄⃨𝙊⃨𝙉⃨𝙎⃨:⃨
