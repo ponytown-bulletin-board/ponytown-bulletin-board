@@ -11,7 +11,7 @@ mean/disrespectful messages will not be added
 
 report anyone problematic annonymously on the atabook
 
-[![Alt Text](https://img.shields.io/badge/atabook-white?style=for-the-badge)](https://ponytownbulliten.atabook.org/)
+[![Alt Text](https://img.shields.io/badge/atabook-white?style=for-the-badge)](https://ponytownbulletin.atabook.org/)
 </div>
 
 
