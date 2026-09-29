@@ -3,7 +3,7 @@
 <div align="center">
 𝙄⃨𝙉⃨𝙎⃨𝙏⃨𝙍⃨𝙐⃨𝘾⃨𝙏⃨𝙄⃨𝙊⃨𝙉⃨𝙎⃨:⃨
   
-Type out your Github username (optional) and the message that you would like to be displayed on the atabook
+Type out your Github username (optional) and the message that you would like to be displayed in the atabook
 
 your message will be deleted once it has been added to the board
 
