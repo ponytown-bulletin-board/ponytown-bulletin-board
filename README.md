@@ -24,3 +24,13 @@ report anyone problematic annonymously on the atabook
 [@Z33r00LagsAlot](https://github.com/Z33r00LagsAlot) says: fih
 
 </div>
+
+[![Untitled5-20260929215428.png](https://i.postimg.cc/s2q38rFm/Untitled5-20260929215428.png)](https://postimg.cc/sBPFQbgG)
+
+<div align="center">
+𝙊⃨𝙬⃨𝙣⃨𝙚⃨𝙧⃨𝙨⃨:⃨
+  
+[![KorKor](https://img.shields.io/badge/%40korkor185-black?style=for-the-badge&logoColor=000000&labelColor=000000&color=000000)](https://github.com/korkor185)   [![Lex](https://img.shields.io/badge/%40Lex3034-black?style=for-the-badge&logo=000000&logoColor=000000&labelColor=000000&color=000000)](https://github.com/Lex3034) [![Rose](https://img.shields.io/badge/%40Senros3-black?style=for-the-badge&logoColor=000000&labelColor=000000&color=000000)](https://github.com/Senros3) 
+[![woop](https://img.shields.io/badge/%40wooppoop24-black?style=for-the-badge&logoColor=000000&labelColor=000000&color=000000)](https://github.com/wooppoop24) 
+ 
+</div>
