@@ -33,6 +33,12 @@ report anyone problematic annonymously on the atabook
 
 [@v0xt3k](https://github.com/v0xt3k) says: C: Cannibalistic H: Humanoid U: Underground D: Dweller
 
+[@Chemicalshot](https://github.com/Chemicalshot) says: Hello guys im feeling jolly
+
+[@RQGUE](https://github.com/RQGUE) says: i love rogue.
+
+[@starvoyage](https://github.com/starvoyage) says: Soccer ball you like a baby kid
+
 </div>
 
 [![Untitled5-20260929215428.png](https://i.postimg.cc/s2q38rFm/Untitled5-20260929215428.png)](https://postimg.cc/sBPFQbgG)
