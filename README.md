@@ -39,6 +39,9 @@ report anyone problematic annonymously on the atabook
 
 [@starvoyage](https://github.com/starvoyage) says: Soccer ball you like a baby kid
 
+[@cherryflavoredfoam](https://github.com/cherryflavoredfoam) says: I LOVE CRACKING MY FINGERS
+
+[@fou11egacy](https://github.com/fou11egacy) says: hi guys come cuddlee me im s cold
 </div>
 
 [![Untitled5-20260929215428.png](https://i.postimg.cc/s2q38rFm/Untitled5-20260929215428.png)](https://postimg.cc/sBPFQbgG)
